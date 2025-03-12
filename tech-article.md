@@ -1,0 +1,2 @@
+2nd file
+Technology is the driving force behind modern innovation, shaping the way we live, work, and communicate. From smartphones and artificial intelligence to space exploration and medical advancements, technology continues to evolve at an unprecedented pace. It enhances efficiency, connects people across the globe, and solves complex problems. However, it also raises ethical concerns, such as data privacy and automation’s impact on jobs. As technology advances, balancing progress with responsibility becomes crucial for a sustainable future.
